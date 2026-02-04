@@ -1,1 +1,0 @@
-# mynet-wbm.github.io
